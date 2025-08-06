@@ -1,2 +1,4 @@
 # Induction-Programme-
 Misty Kapoor  ( Electronics and Communication ) 
+# Day 1 ( 30-07-2025 ) 
+Stepping onto campus, I was immediately overwhelmed by the college, but my first stop was the Gurdwara Sahib, a place of peace and reflection, where I sought blessings for a successful academic journey and the Kirtan was absolutely divine. Following this, the delightful refreshments provided a chance to meet new faces, sharing excited chatter and nervous smiles. The auditorium visit , then introduced us to the college's rich history and diverse offerings, followed by inspiring speeches from esteemed speakers , who were our Principal Dr. Sehajpal Singh , HOD of applied sciences Dr. Harpreet kaur  and tge chief trustee of Nankana Sahib Education trust , their words igniting a spark of motivation and setting the tone for an enriching college experience. 

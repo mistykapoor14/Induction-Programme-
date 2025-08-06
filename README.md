@@ -21,7 +21,7 @@ After a refreshing break, we dove into an English lecture, enhancing our communi
 
 # Day - 4 (04-08-2025)
 The day began with a great start as Mr. Gautam Marria ,  took the stage. He shared his passion, captivating us with stories of engineering feats , igniting a spark of excitement within us. Next, we transitioned to a different kind of learning with Dr. Shiffy Makkar, who unveiled the nutritional benefits and sustainable aspects of millets, ancient grains with a modern appeal.
-
+![Image](https://github.com/user-attachments/assets/669b2973-f232-453a-b5b5-6c505e5fa45a)
 In between these sessions, we had a fantastic opportunity to interact with our seniors. They shared their experiences, offered advice, and helped us navigate the college landscape. Their insights were invaluable, giving us a clearer perspective on our academic journey. This interaction created a sense of community and support. 
 
 The day was a perfect blend of  knowledge and practical guidance, leaving us feeling both inspired and well-prepared.

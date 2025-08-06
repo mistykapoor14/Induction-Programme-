@@ -8,6 +8,7 @@ Stepping onto campus, I was immediately overwhelmed by the college, but my first
 The auditorium visit , then introduced us to the college's rich history and diverse offerings, followed by inspiring speeches from esteemed speakers , who were our Principal Dr. Sehajpal Singh , who addressed us about the college's infrastructure and facilities and guided us about our future, then HOD of applied sciences Dr. Harpreet kaur addressed us and taught us that every branch has its own specialities and our future and our well - being is in our hands , and at the end we got chance to hear chief trustee of Nankana Sahib Education trust Mr. Mahesh Inder Singh , their words igniting a spark of motivation and setting the tone for an enriching college experience. 
 
 Hence , our day ended with a tour of our department which was given by our seniors. 
+![Image](https://github.com/user-attachments/assets/80e905de-dac7-4c9a-8753-af744b4c5877) 
 # Day 2 (01-08-2025) 
 The second day brought a deeper dive into the core of our education, focusing on universal human values taught by  Dr. Priya Darshni , which gave us a new perspective on life. Learning about these values helps us to understand different perspectives, resolve conflicts peacefully, and build strong, positive relationships. 
 

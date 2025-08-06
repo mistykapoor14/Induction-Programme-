@@ -7,4 +7,4 @@ The auditorium visit , then introduced us to the college's rich history and dive
 # Day 2 ( 01-08-2025 ) 
 The second day brought a deeper dive into the core of our education, focusing on universal human values taught by  Dr. Priya Darshni , which gave us a new perspective on life. Learning about these values helps us to understand different perspectives, resolve conflicts peacefully, and build strong, positive relationships. 
 
-Then with the guidance of Dr. Arvind  Dhingra , we also learned more about the college committee, discovering the various clubs, societies, and support systems available to us. The day concluded with proficiency tests .
+Then with the guidance of Dr. Arvind  Dhingra , we also learned more about the college committee, discovering the various clubs, societies, and support systems available to us , this was accompanied with spme fun games and some prizes . The day concluded with proficiency tests .

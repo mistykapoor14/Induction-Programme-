@@ -5,4 +5,6 @@ Stepping onto campus, I was immediately overwhelmed by the college, but my first
 
 The auditorium visit , then introduced us to the college's rich history and diverse offerings, followed by inspiring speeches from esteemed speakers , who were our Principal Dr. Sehajpal Singh , HOD of applied sciences Dr. Harpreet kaur  and the chief trustee of Nankana Sahib Education trust Mr. Mahesh Inder Singh , their words igniting a spark of motivation and setting the tone for an enriching college experience. 
 # Day 2 ( 01-08-2025 ) 
-The second day brought a deeper dive into the core of our education, focusing on universal human values taught by  Dr. Priya Darshni , which gave us a new perspective on life. Then with the guidance of Dr. Arvind  Dhingra , we also learned more about the college committee, discovering the various clubs, societies, and support systems available to us. The day concluded with proficiency tests .
+The second day brought a deeper dive into the core of our education, focusing on universal human values taught by  Dr. Priya Darshni , which gave us a new perspective on life. Learning about these values helps us to understand different perspectives, resolve conflicts peacefully, and build strong, positive relationships. 
+
+Then with the guidance of Dr. Arvind  Dhingra , we also learned more about the college committee, discovering the various clubs, societies, and support systems available to us. The day concluded with proficiency tests .

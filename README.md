@@ -43,3 +43,13 @@ We then had the privilege of interacting with NCC cadets, gaining insights into 
 After a refreshing break, we immersed ourselves in a physics lecture with Professor Amarjot Ma'am, followed by session on motorsports with Mr. Gautam, who once again captivated us with tales of speed and innovation. 
 ## Conclusion of day
 It was a day filled with diverse learning experiences, fostering both personal growth and academic enrichment.
+# Day - 6 (07-08-2025)
+## Lectures 
+The day began with the  trek to the physics lecture . The professor taught the basics of Lasers ,   and  After physics, it was a quick dash to the math lecture. The math lecture was a completely different beast, filled with differential equations . The break that followed was a godsend .
+## Centre for Multi-facted Learning 
+The interactive session with Dr. Lakhvir Singh Khana, the in-charge of CML(Centre for mutli-facted learning ) , was enlightening. He shared insights on the latest research and the future of technology.
+## NSS session 
+The highlight of the day was undoubtedly the NSS session. The session kicked off with a soulful shabad, creating a sense of unity. Then, games were organized, which saw everyone laughing and competing. The fun act performed by the NSS volunteers was the perfect end to the day, leaving everyone with smiles and fond memories. It was a day filled with learning, laughter, and a sense of community.
+
+# CONCLUSION 
+The week-long induction program at the college served as a crucial bridge, seamlessly connecting incoming students to the vibrant tapestry of college life. From the initial orientation sessions to the interactive workshops and engaging departmental introductions, the program was meticulously designed to foster a sense of belonging. The carefully curated sessions with faculty, the insightful talks by guest speakers, and the fun-filled activities organized by various student bodies all contributed to creating a holistic experience. By the end of the week, the students weren't just new faces on campus; they were active participants, well-versed in the college's ethos and equipped with the knowledge and confidence to embark on their academic journeys. The induction program was more than just an introduction; it was a warm welcome, setting the stage for a successful and enriching college experience.
